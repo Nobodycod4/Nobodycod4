@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Nobodycod4
 - 👀 I’m interested in Gaming(ofc),Programing,Editing
-- 🌱 I’m currently learning 9th std
-- 💞️ I’m looking to collaborate on ......
-- 📫 How to reach me ...in discord @Nobodycod4 or my server https://discord.gg/sPNvNfJ46U
+- 🌱 I’m currently learning 11th std
+- 💞️ I’m looking to collaborate on any knid of programing
+- 📫 How to reach me ...in discord @Nobodycod4#8440
 
 <!--- 
 Nobodycod4/Nobodycod4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
