@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently a Student in Zoho Schools<br>I’m interested in Gaming, Programing, Editing, Pen-testing and OSINT<br>I’m looking to collaborate on any kind of programing
+Currently a Trainee in Zoho Corp<br>I’m interested in Gaming, Programing, Editing, Pen-testing and OSINT<br>I’m looking to collaborate on any kind of programing
 
 
 ## 🌐 Socials:
