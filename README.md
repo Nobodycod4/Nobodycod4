@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently a Student in Zoho Schools<br>I’m interested in Gaming, Programing, Editing, Pen-testing and OSINT<br>I’m looking to collaborate on any kind of programing<br>Nobodycod4#8440 in discord<br>
+Currently a Student in Zoho Schools<br>I’m interested in Gaming, Programing, Editing, Pen-testing and OSINT<br>I’m looking to collaborate on any kind of programing
 
 
 ## 🌐 Socials:
